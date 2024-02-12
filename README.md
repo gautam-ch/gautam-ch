@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Gautam Chouhan
--    currently pursuaing Btech CSE
+-    currently pursuing Btech CSE
 -    learning and exploring right now 
--    ready to work always 
+-    ready to work and develop  always 
 
 
